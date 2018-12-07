@@ -1,6 +1,6 @@
 ---
 title: Queen’s Necklace
-date: "Oct 12, 2015"
+date: "2015-10-12T20:46:37.121Z"
 ---
 
 a corner. We sat on it and started talking about some random topics. It was still daylight at that time. We talked about each other’s life and then only about my past life. All this time, time was passing and soon there was no sunlight and it was all dark. Just like my life was back then.
